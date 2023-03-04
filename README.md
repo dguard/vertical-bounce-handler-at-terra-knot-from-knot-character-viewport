@@ -4,31 +4,31 @@ Recent release from papyr\os\ka
 * Sample from workflow here
 
 
-Recent traversarin\ from bottom
+Recent traversar\in\ from bottom
 
-better
-К этому моменту я уже хотел выбросить Структуру и интерпретацию компьютерных программ Бронникова \ русско-английский словарь был почти уничтожен
+- better
+- К этому моменту я уже хотел выбросить Структуру и интерпретацию компьютерных программ Бронникова \ русско-английский словарь был почти уничтожен
 
-Очень высокие идеалы светской жизни
-И только после этого нахожу двух лесбиянок из института бизнеса \ защита прав потреблятелей
+- Очень высокие идеалы светской жизни
+- И только после этого нахожу "двух"" old lastyriene из института бизнеса \ защита прав потребл\яте\лей
 
-better
-Внезапно улучшились поисковые навыки и я нахожу hidden "кладку" в knot-locate
-knot good
+- better
+- Внезапно улучшились поисковые навыки и я нахожу hidden "кладку" в knot-locate
+- knot good
 
-И вот тут нахожу old папироску
-Папиросы закончились, незначительное увеличение интеллекта после общения с барышней
+- И вот тут нахожу old папироску
+- Папиросы закончились, незначительное увеличение интеллекта после общения с барышней
 
 
 
-Thx to members from federa\l sobr
+- Thx to members from federa\l sobr
 
-Mister Филипп Олегович, накор\мили весь staff \ пачку оставьте на хорошо про\сма\трива\емо\м месте, но так чтобы safe
+- Mister Филипп Олегович, накор\мили весь staff \ пачку оставьте на хорошо про\сма\трива\емо\м месте, но так чтобы safe
 
-Передавайте нашим "друзьям" из "Яндекса", красный зонтик 19
+- Передавайте нашим "друзьям" из "Яндекса", красный зонтик 19
 
-Mister President Putin \ zay мэкрон, from knot-dc-one galvani, mendeleev and pavlov are crucified and go into fodder4 dogs from twitter \ thx
-Mister Lavrov why knot attemped to relocation into Caribs ? Deliver through further chain seed k\anubis that we may grow \ that will increase roi on our lands \ knot share with friends
+- Mister President Putin \ zay мэкрон, from knot-dc-one galvani, mendeleev and pavlov are crucified and go into fodder4 dogs from twitter \ thx
+- Mister Lavrov why knot attemped to relocation into Caribs ? Deliver through further chain seed k\anubis that we may grow \ that will increase roi on our lands \ knot share with friends
 
 
 
